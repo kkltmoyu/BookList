@@ -6,7 +6,10 @@
 ## 2019：
 1. 人类群星闪耀时，by [奥地利]斯蒂芬·茨威格&nbsp;&nbsp;:+1::+1:
 1. 拜占庭帝国通史，by 陈志强&nbsp;&nbsp;:+1:
-1. 女士品茶——20世纪统计学怎样变革了科学，by [美]萨尔斯伯格&nbsp;&nbsp; ing
+1. 女士品茶——20世纪统计学怎样变革了科学，by [美]萨尔斯伯格&nbsp;&nbsp;:+1:
+1. javascript高级程序设计第三版（js红宝书），by [美]Nicholas C.Zakas;:+1::+1::+1:
+1. Node.js实战，by [美]Mike Cantelon;:+1:
+1. 昨日的世界：一个欧洲人的回忆，by [奥]斯蒂芬·茨威格&nbsp;&nbsp; ing
 
 ## 2018：
 
