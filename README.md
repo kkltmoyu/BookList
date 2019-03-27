@@ -8,7 +8,7 @@
 1. 拜占庭帝国通史，by 陈志强&nbsp;&nbsp;:+1:
 1. 女士品茶——20世纪统计学怎样变革了科学，by [美]萨尔斯伯格&nbsp;&nbsp;:+1:
 1. javascript高级程序设计第三版（js红宝书），by [美]Nicholas C.Zakas&nbsp;&nbsp;:+1::+1::+1:
-1. javascript权威指南第六版（js红犀牛书），by [美]弗拉纳根&nbsp;&nbsp;:+1::+1::+1:
+1. javascript权威指南第六版（js犀牛书），by [美]弗拉纳根&nbsp;&nbsp;:+1::+1::+1:
 1. Node.js实战，by [美]Mike Cantelon&nbsp;&nbsp;:+1:
 1. Node.js开发实战，by [美]Jim Wilson&nbsp;&nbsp;:+1:
 1. 昨日的世界：一个欧洲人的回忆，by [奥]斯蒂芬·茨威格&nbsp;&nbsp; 读ing
