@@ -4,6 +4,7 @@
 注：:+1: 标识推荐指数，可为空。
 
 ## 2019：
+
 1. 人类群星闪耀时，by [奥地利]斯蒂芬·茨威格&nbsp;&nbsp;:+1::+1:
 1. 拜占庭帝国通史，by 陈志强&nbsp;&nbsp;:+1:
 1. 女士品茶——20世纪统计学怎样变革了科学，by [美]萨尔斯伯格&nbsp;&nbsp;:+1:
@@ -11,7 +12,10 @@
 1. javascript权威指南第六版（js犀牛书），by [美]弗拉纳根&nbsp;&nbsp;:+1::+1::+1:
 1. Node.js实战，by [美]Mike Cantelon&nbsp;&nbsp;:+1:
 1. Node.js开发实战，by [美]Jim Wilson&nbsp;&nbsp;:+1:
-1. 昨日的世界：一个欧洲人的回忆，by [奥]斯蒂芬·茨威格&nbsp;&nbsp; 读ing
+1. 昨日的世界：一个欧洲人的回忆，by [奥]斯蒂芬·茨威格&nbsp;&nbsp;:+1:
+1. 终极算法，by [美]佩德罗·多明戈斯&nbsp;&nbsp;:+1:
+1. 德国简史，by [美]玛丽·普拉特·帕米利&nbsp;&nbsp;
+1. 球状闪电，by 刘慈欣&nbsp;&nbsp; 读ing
 
 ## 2018：
 
