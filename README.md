@@ -79,6 +79,8 @@
 1. 基督山伯爵，by [法]大仲马&nbsp;&nbsp;:+1::+1:
 1. 三个火枪手，by [法]大仲马&nbsp;&nbsp;:+1:
 1. 时间简史，by [英]斯蒂芬·威廉·霍金&nbsp;&nbsp;:+1:
-
-
-
+1. 明朝那些事儿，by 当年明月&nbsp;&nbsp;:+1::+1::+1:
+1. 编程之美，&nbsp;&nbsp;:+1:
+1. 黑铁时代，by 王小波&nbsp;&nbsp;:+1::+1:
+1. Java编程思想,，by [美] Bruce Eckel&nbsp;&nbsp;:+1::+1:
+1. 大话设计模式,，by 程杰&nbsp;&nbsp;:+1:
