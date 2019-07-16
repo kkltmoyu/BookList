@@ -19,8 +19,9 @@
 1. 禅与摩托车维修艺术,by [美]罗伯特·M.波西格&nbsp;&nbsp;:+1:
 1. 疯狂人类进化史，by 史钧&nbsp;&nbsp;:+1::+1:
 1. 我不知道该说什么，关于死亡还是爱情，by [白俄罗斯]斯维拉娜·阿列塞维奇&nbsp;&nbsp;:+1:
+1. 超新星纪元，by 刘慈欣&nbsp;&nbsp; not to my appetite(⊙o⊙)…
 1. 硅谷钢铁侠，by [美]阿什利•万斯&nbsp;&nbsp;读ing
-1. 超新星纪元，by 刘慈欣&nbsp;&nbsp;读ing
+1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;读ing
 
 
 ## 2018：
