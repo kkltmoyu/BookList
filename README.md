@@ -22,6 +22,7 @@
 1. 超新星纪元，by 刘慈欣&nbsp;&nbsp; not to my appetite(⊙o⊙)…
 1. 硅谷钢铁侠，by [美]阿什利•万斯&nbsp;&nbsp;读ing
 1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;读ing
+1. 神们自己，by [美]阿艾萨克·阿西莫夫&nbsp;&nbsp;读ing
 
 
 ## 2018：
