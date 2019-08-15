@@ -14,18 +14,18 @@
 1. Node.js开发实战，by [美]Jim Wilson&nbsp;&nbsp;:+1:
 1. 昨日的世界：一个欧洲人的回忆，by [奥]斯蒂芬·茨威格&nbsp;&nbsp;:+1:
 1. 终极算法，by [美]佩德罗·多明戈斯&nbsp;&nbsp;:+1:
-1. 德国简史，by [美]玛丽·普拉特·帕米利&nbsp;&nbsp;(未读完，完全提不起兴趣(⊙o⊙)…)
+1. 德国简史，by [美]玛丽·普拉特·帕米利&nbsp;&nbsp;:shit:&nbsp;(未读完，完全提不起兴趣(⊙o⊙)…)
 1. 球状闪电，by 刘慈欣&nbsp;&nbsp;:+1::+1:
 1. 禅与摩托车维修艺术,by [美]罗伯特·M.波西格&nbsp;&nbsp;:+1:
 1. 疯狂人类进化史，by 史钧&nbsp;&nbsp;:+1::+1:
 1. 我不知道该说什么，关于死亡还是爱情，by [白俄罗斯]斯维拉娜·阿列塞维奇&nbsp;&nbsp;:+1:
-1. 超新星纪元，by 刘慈欣&nbsp;&nbsp; not to my appetite(⊙o⊙)…
+1. 超新星纪元，by 刘慈欣&nbsp;&nbsp;:shit:&nbsp;not to my appetite(⊙o⊙)…
 1. 硅谷钢铁侠，by [美]阿什利•万斯&nbsp;&nbsp;:+1:
 1. 神们自己，by [美]阿艾萨克·阿西莫夫&nbsp;&nbsp;:+1::+1:
 1. 黄金时代，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:+1::+1:
-1. 三十而立，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;
+1. 三十而立，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:shit:
 1. 似水流年，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:+1:
-1. 革命时期的爱情，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;
+1. 革命时期的爱情，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:shit:
 1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;读ing  
 
 
