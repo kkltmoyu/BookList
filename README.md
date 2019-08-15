@@ -22,8 +22,11 @@
 1. 超新星纪元，by 刘慈欣&nbsp;&nbsp; not to my appetite(⊙o⊙)…
 1. 硅谷钢铁侠，by [美]阿什利•万斯&nbsp;&nbsp;:+1:
 1. 神们自己，by [美]阿艾萨克·阿西莫夫&nbsp;&nbsp;:+1::+1:
+1. 黄金时代，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:+1::+1:
+1. 三十而立 王小波&nbsp;&nbsp;&nbsp;&nbsp;
+1. 似水流年 王小波&nbsp;&nbsp;&nbsp;&nbsp;:+1:
+1. 革命时期的爱情 王小波&nbsp;&nbsp;&nbsp;&nbsp;
 1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;读ing  
-1. 黄金时代，by 王小波&nbsp;&nbsp;读ing  
 
 
 ## 2018：
