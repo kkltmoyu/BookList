@@ -26,6 +26,7 @@
 1. 三十而立，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:shit:
 1. 似水流年，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:+1:
 1. 革命时期的爱情，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:shit:
+1. 荒野生存，by [美]乔恩·克拉考尔&nbsp;&nbsp;:+1:
 1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;读ing  
 
 
