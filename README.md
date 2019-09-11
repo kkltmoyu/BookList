@@ -27,10 +27,11 @@
 1. 似水流年，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:+1:
 1. 革命时期的爱情，by 王小波&nbsp;&nbsp;&nbsp;&nbsp;:shit:
 1. 荒野生存，by [美]乔恩·克拉考尔&nbsp;&nbsp;:+1:
-1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;读ing  
-1. 众病之王：癌症传，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
-1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;待读
+1. 天才在左疯子在右，by 高铭&nbsp;&nbsp;:+1::+1:
+1. 众病之王：癌症传，by [美]悉达多·穆克吉&nbsp;&nbsp;:+1:
 1. 极简宇宙史，by [法] 克里斯托弗·加尔法德 &nbsp;&nbsp;读ing
+1. 活着，by 余华 &nbsp;&nbsp;读ing
+1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 腾讯传，by 吴晓波 &nbsp;&nbsp;待读
 
 ## 2018：
