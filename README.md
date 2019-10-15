@@ -34,6 +34,7 @@
 1. 无人生还，by [英]阿加莎·克里斯蒂&nbsp;&nbsp;:+1::+1:
 1. 许三观卖血记，by 余华&nbsp;&nbsp;:+1::+1:
 1. 大灭绝时代，by [美]伊丽莎白·科尔伯特&nbsp;&nbsp;:+1::+1:
+1. 鬼谷子，by [战国]鬼谷子&nbsp;&nbsp;读ing
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 腾讯传，by 吴晓波 &nbsp;&nbsp;待读
