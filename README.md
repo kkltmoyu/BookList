@@ -35,6 +35,7 @@
 1. 许三观卖血记，by 余华&nbsp;&nbsp;:+1::+1:
 1. 大灭绝时代，by [美]伊丽莎白·科尔伯特&nbsp;&nbsp;:+1::+1:
 1. 野性的呼唤，by [美]杰克·伦敦&nbsp;&nbsp;:+1::+1:
+1. 从一到无穷大，by [美]G·伽莫夫&nbsp;&nbsp;:+1::+1:
 1. 鬼谷子，by [战国]鬼谷子&nbsp;&nbsp;读ing
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
