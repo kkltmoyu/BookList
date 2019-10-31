@@ -41,6 +41,7 @@
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 人间失格，by [日]太宰治&nbsp;&nbsp;读ing
+1. 平凡的世界，by 路遥&nbsp;&nbsp;读ing
 1. 腾讯传，by 吴晓波 &nbsp;&nbsp;待读
 
 ## 2018：
