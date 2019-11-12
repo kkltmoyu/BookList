@@ -43,10 +43,9 @@
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 平凡的世界，by 路遥&nbsp;&nbsp;读ing
-1. 腾讯传，by 吴晓波 &nbsp;&nbsp;待读
+1. 全民疯狂的欧洲，by [美]比尔·布莱森&nbsp;&nbsp;读ing
 
 ## 2018：
-
 1. 三体1，by 刘慈欣&nbsp;&nbsp;:+1::+1:
 1. 三体2:黑暗森林，by 刘慈欣&nbsp;&nbsp;:+1::+1::+1:
 1. 三体3:死神永生，by 刘慈欣&nbsp;&nbsp;:+1::+1::+1:
