@@ -38,11 +38,12 @@
 1. 绝对笑喷之弃业医生日志，by [英]亚当·凯&nbsp;&nbsp;:+1::+1:
 1. 人间失格，by [日]太宰治&nbsp;&nbsp;:+1:
 1. 皮囊，by 蔡崇达&nbsp;&nbsp;:+1:
+1. 全民疯狂的欧洲，by [美]比尔·布莱森
 1. 从一到无穷大，by [美]G·伽莫夫&nbsp;&nbsp;读ing
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 平凡的世界，by 路遥&nbsp;&nbsp;读ing
-1. 全民疯狂的欧洲，by [美]比尔·布莱森&nbsp;&nbsp;读ing
+1. 用我一辈子去忘记，by 柴静&nbsp;&nbsp;读ing
 1. 当呼吸化为空气，by [美]保罗·卡拉尼什&nbsp;&nbsp;待读
 1. 永久记录，by [美]爱德华·斯诺登&nbsp;&nbsp;待读
 
