@@ -40,6 +40,7 @@
 1. 皮囊，by 蔡崇达&nbsp;&nbsp;:+1:
 1. 全民疯狂的欧洲，by [美]比尔·布莱森
 1. 从一到无穷大，by [美]G·伽莫夫&nbsp;&nbsp;读ing
+1. 普京传：他为俄罗斯而生，by 郑文阳&nbsp;&nbsp;读ing
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 平凡的世界，by 路遥&nbsp;&nbsp;读ing
