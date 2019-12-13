@@ -43,7 +43,9 @@
 1. 从一到无穷大，by [美]G·伽莫夫&nbsp;&nbsp;
 1. 普京传：他为俄罗斯而生，by 郑文阳&nbsp;&nbsp;
 1. 平凡的世界，by 路遥&nbsp;&nbsp;:+1::+1::+1:
-1. 当呼吸化为空气，by [美]保罗·卡拉尼什&nbsp;&nbsp;读ing
+1. 当呼吸化为空气，by [美]保罗·卡拉尼什&nbsp;&nbsp;:+1::+1:
+1. 非暴力沟通，by [美]马歇尔·卢森堡&nbsp;&nbsp;读ing
+1. ABC谋杀案，by [英]阿加莎·克里斯蒂&nbsp;&nbsp;读ing
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 永久记录，by [美]爱德华·斯诺登&nbsp;&nbsp;待读
