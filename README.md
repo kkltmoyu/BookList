@@ -15,7 +15,7 @@
 1. 终极算法，by [美]佩德罗·多明戈斯&nbsp;&nbsp;:+1:
 1. 德国简史，by [美]玛丽·普拉特·帕米利&nbsp;&nbsp;:shit:&nbsp;(未读完，完全提不起兴趣(⊙o⊙)…)
 1. 球状闪电，by 刘慈欣&nbsp;&nbsp;:+1::+1:
-1. 禅与摩托车维修艺术,by [美]罗伯特·M.波西格&nbsp;&nbsp;:+1:
+1. 禅与摩托车维修艺术，by [美]罗伯特·M.波西格&nbsp;&nbsp;:+1:
 1. 疯狂人类进化史，by 史钧&nbsp;&nbsp;:+1::+1:
 1. 我不知道该说什么，关于死亡还是爱情，by [白俄罗斯]斯维拉娜·阿列塞维奇&nbsp;&nbsp;:+1:
 1. 超新星纪元，by 刘慈欣&nbsp;&nbsp;:shit:&nbsp;not to my appetite(⊙o⊙)…
