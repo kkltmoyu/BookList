@@ -8,6 +8,7 @@
 1. 最好的告别，by [美]阿图·葛文德&nbsp;&nbsp;:+1::+1:
 1. 永久记录，by [美]爱德华·斯诺登&nbsp;&nbsp;读ing
 1. 基因传：众生之源，by [美]悉达多·穆克吉&nbsp;&nbsp;读ing
+1. 古代人的日常生活，by 王磊&nbsp;&nbsp;读ing
 1. 贫穷的本质：我们为什么摆脱不了贫穷，by [印度]阿比吉特·班纳吉,[法]埃斯特·迪弗洛&nbsp;&nbsp;读ing
 1. 兄弟，by 余华&nbsp;&nbsp;读ing
 1. 思维简史，by [美]伦纳德·蒙洛迪诺&nbsp;&nbsp;待读
