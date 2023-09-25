@@ -7,6 +7,7 @@
 2. 实习医生手记，by 殳儆&nbsp;&nbsp; :+1::+1:
 3. 弃长安，by 张明扬&nbsp;&nbsp; :+1::+1:
 4. 男人这东西，by 渡边淳一&nbsp;&nbsp; :+1::+1:
+5. 相信，by 蔡磊&nbsp;&nbsp; :+1::+1:
 
 ## 2020：
 1. 深奥的简洁，by [英]John Gribbin&nbsp;&nbsp; 
