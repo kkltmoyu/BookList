@@ -9,7 +9,7 @@
 4. 男人这东西，by 渡边淳一&nbsp;&nbsp; :+1::+1:
 5. 相信，by 蔡磊&nbsp;&nbsp; :+1::+1:
 6. 目光，by 陶勇&nbsp;&nbsp; :+1::+1:
-7. 人间告白，by 金鱼酱&nbsp;&nbsp; :+1::+1:
+7. 人间告白，by 金鱼酱&nbsp;&nbsp; :+1::+1:(难过)
 
 ## 2020：
 1. 深奥的简洁，by [英]John Gribbin&nbsp;&nbsp; 
