@@ -14,6 +14,7 @@
 9. 法治的细节，by 罗翔&nbsp;&nbsp; （未读完）
 10. 也许你改找个人聊聊，by 洛莉·戈特利布&nbsp;&nbsp; :+1::+1::
 11. 太白金星有点烦，by 马伯庸&nbsp;&nbsp; :+1::+1::+1:
+12. 第七天，by 余华&nbsp;&nbsp; :+1::+1:
 
 ## 2020：
 1. 深奥的简洁，by [英]John Gribbin&nbsp;&nbsp; 
