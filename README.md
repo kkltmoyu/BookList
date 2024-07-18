@@ -10,7 +10,8 @@
 4. 古代人的衣食住行，by 王磊&nbsp;&nbsp; :+1:
 5. 刑辩私塾，by 朱明勇&nbsp;&nbsp; :+1:
 6. 植物的战斗，by 汪洁&nbsp;&nbsp; 
-7. 思考，快与慢，by [以]丹尼尔·卡尼曼&nbsp;&nbsp;读ing
+7. 花猫三丫上房了，by 叶广苓&nbsp;&nbsp; :+1:
+8. 荒诞医学史，by [美]莉迪亚·康 内特·彼得森&nbsp;&nbsp;读ing
 
 ## 2023：
 1. 长安的荔枝，by 马伯庸&nbsp;&nbsp; :+1::+1:
